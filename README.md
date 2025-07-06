@@ -1,1 +1,1 @@
-# -Origin-of-Bitcoin-
+# bitcoin*origin*theory*
